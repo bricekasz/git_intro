@@ -1,1 +1,2 @@
 Brice Kaszubinski
+kaszubib@oregonstate.edu
